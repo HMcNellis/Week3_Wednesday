@@ -1,4 +1,4 @@
-# Wednesday, September 30th
+# Wednesday, September 30th - Hanni
 
 ##Review
 [Monday's Material](https://github.com/calebatwood/Week3_Monday)
